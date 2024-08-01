@@ -6,4 +6,4 @@
 **segue no insta:_alissonsgs_**
 ![](https://media1.tenor.com/m/vtm1oAR2314AAAAC/taxad-taxa.gif)
 ![](https://media.tenor.com/OcXTdXXNexsAAAAi/fazueli-faz-o-ele.gif)
-![Uploading WIN_20240801_18_28_02_Pro.jpg…]()
+![](Uploading WIN_20240801_18_28_02_Pro.jpg…)
